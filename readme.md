@@ -20,7 +20,7 @@ Anything means anything. Personal questions. Money. Life. Code. Whatever.
 
 -
 
-*I can also be reached on [Twitter](https://twitter.com/kentcdodds) and [email](mailto:kent+ama@doddsfamily.us), but I prefer [this medium](https://github.com/kentcdodds/ama/issues/new).*
+*I can also be reached on Twitter (on my profile) and [email](mailto:dunspam@my.email.co), but I prefer on this ama or via comment on my personal web pages.*
 
 -
 
