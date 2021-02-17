@@ -20,7 +20,7 @@ Anything means anything. Personal questions. Money. Life. Code. Whatever.
 
 -
 
-*I can also be reached on Twitter (on my profile) and [email](mailto:dunspam@my.email.co), but I prefer on this ama or via comment on my personal web pages.*
+*I can also be reached on Twitter (on my profile), [email](mailto:dunspam@my.email.co), this very ama and comment on my personal web pages. Sadly :smile: I prefer on my [patreon](https://www.patreon.com/basukarna)  .*
 
 -
 
